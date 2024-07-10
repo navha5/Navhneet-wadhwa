@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **navhneet.wadhwa@gmail.com**
 
-- 📄 Know about my experiences [linkeddin](linkeddin)
+- 📄 Know about my experiences [linkedin](linkedin)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
